@@ -1,0 +1,2 @@
+# copia curso em video
+ 
